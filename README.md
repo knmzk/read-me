@@ -1,9 +1,7 @@
-haiii im luna aka amia (^_^)!! seasian minor genderless lesbian... more info in [rentry](https://rentry.co/jealousy)
+haiii im luna aka amia/fuuta or whatever u know me by (^_^)!! seasian teen genderless lesbian... more info in [rentry](https://rentry.co/jealousy)
 
 [my guestbookkkk](https://amia.123guestbook.com/#) leave silly messages or something?I Dont know
 
-_**DNI FONT USERS**_ OYuguys are so Fucking annoying canyou type normally. it's so hardot read i promise your carrd or rentry isnt goingot sotp looking cutecore after you remove the ugly fonts.  Also dni if you like okegom, use the terms das/source for your kins, or say that ure nonverbal andddd believe in/use those things like tt/td i'll just block you if youre annoying or something 
+_**DNI FONT USERS**_ or oyu go sv/nv + have tt/td in games 👍 i'll just block ifoyure annoying or something
 
-do not copy my skins ever Please thank u..!inspo is fine and whatever i dont reallycare but full dont full on copy it..?!!!
-
-![](https://media.discordapp.net/attachments/944928022329450549/1064167167530106942/IMG_0691.png?width=1440&height=280)
+do not copy my skins ever Please thank u..!inspo is fine and whatever i dont reallycare
